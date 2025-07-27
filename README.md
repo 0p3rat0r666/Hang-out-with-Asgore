@@ -7,7 +7,9 @@ alternate download of my fnf mod [hang out with Asgore](https://gamebanana.com/m
 Did you hear KennyTheLyr1c1st and Bub8les's truck song and want to sing it in fnf with Asgore? No? Well too bad I already made the mod :3
 
 Sing hit singles with him such as:
+
 ![](https://xaoiui.neocities.org/Gstar.gif) [TRUCK!](https://youtu.be/L4MlbwcaKLo?si=j6kW6ck4D8J9vTuI) by KennyTheLyr1c1st and Bub8les
+
 ![](https://xaoiui.neocities.org/Gstar.gif) [Kanye West](https://youtu.be/6F5azNTnaOI?si=Mc9Go3Nfge6EVI5T) by BotanicSage (reupload)
 
 
